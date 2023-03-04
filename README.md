@@ -1,14 +1,19 @@
 
 
-Tutorials:
-https://tomcam.github.io/least-github-pages/ (note: different directory layout for this project)
+## Tutorials:
+
+https://tomcam.github.io/least-github-pages/ (fyi it describes a different directory layout than this project)
+
 https://markdowntutorial.com/
+
 https://jekyllrb.com/docs/
 
-Old site:
+### Old site:
+
 https://web.archive.org/web/20160824213451/http://yogalightness.com/
 
-Preview:
+### Preview:
+
 https://yogalightness.github.io/
 
 
