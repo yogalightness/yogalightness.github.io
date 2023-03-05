@@ -3,7 +3,6 @@ layout: post
 title: The way of Yoga as a path to Self Knowledge
 subtitle: This is what we did in the first Friday morning class
 cover-img: /assets/img/path.jpg
-thumbnail-img: /assets/img/thumb.png
 share-img: /assets/img/path.jpg
 tags: [yoga]
 ---
