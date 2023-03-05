@@ -1,6 +1,6 @@
 ---
 layout: page
-toc_max: 8
+toc_max: 10
 ---
 
 

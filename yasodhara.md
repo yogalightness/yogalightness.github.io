@@ -1,8 +1,9 @@
 ---
 layout: page
-title: Yasodhara Yoga
+toc_max: 10
 ---
 
+### Yasodhara Yoga
 
 Yasodhara Yoga is a reflective, spiritual approach to yoga that integrates body, mind and speech. By integrating yogic practices with personal development techniques, Yasodhara Yoga encompasses the teachings of the East and translates them for our Western situation.
 

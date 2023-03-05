@@ -4,9 +4,11 @@ layout: base
 
 {% include header.html type="page" %}
 
+{% if page.toc_max %}
 {% assign my_min = page.toc_min | default: site.toc_min | default: 0 %}
 {% assign my_max = page.toc_max | default: site.toc_max | default: 0 %}
 {% include toc.html html=content sanitize=true h_min=my_min h_max=my_max %}
+{% endif %}
 
 <div class="{% if page.full-width %} container-fluid {% else %} container-md {% endif %}" role="main">
   <div class="row">
