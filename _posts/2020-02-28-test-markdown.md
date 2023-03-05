@@ -1,48 +1,0 @@
----
-layout: post
-title: The way of Yoga as a path to Self Knowledge
-subtitle: This is what we did in the first Friday morning class
-cover-img: /assets/img/path.jpg
-share-img: /assets/img/path.jpg
-tags: [yoga]
----
-
-This is taken from an email that I sent out after the first weeks class,  as revision for those and who attended the first class, and, to those who were joining in the second week and subsequently.
-
-“I thought that it might be useful to summarize what we did last week, and give a flavour of where we’re going with it, so that if you are starting tomorrow or in the future, you are up to speed…
-
-Firstly, we shared names, and, what had drawn us to the class.  The reason that I invite people to dialogue in the class is because we can all relate to one another. Although we all perceive ourselves as individuals, we are all deeply connected. In the same way that we may see trees as separate, they are all deeply connected through the root, fungal and subtle system of the forest. There is no separation!  So, although we all appear to be separate from each other, on some level, we are all arising out of the flow of creation, experiencing this phase of being within the arena of time and space which gives rise to the perception of individuality and separation from others.  The word Yoga is complex, but, has a sense of moving , beyond the perception of separateness towards an experience of oneness, Unity.
-
-I work with the ‘proximal matter’ – i.e., what we have right here, right now. In every instant, it’s body, breath and being. So just by communicating on a deeper level than the social, we are moving towards an experience of connectedness.
-
-I went on to explain what the Path to Yoga is. I’m passionate about conveying that it is not a form of exercise! It IS a Path to Self Knowledge.  Let me digress a little here: what is ‘Self’?  In the tradition of the Path to Yoga, the Self is known as the Atman. Here’s some definitions of Atman from www.thefreedictionary.com/atman Atman The essence that is eternal, unchanging, and indistinguishable from the essence of the universe. [Sanskrit ātman, literally ‘essence, breath’] the spiritual life principle of the universe, especially when regarded as immanent in the individual’s real self.a person’s soul.
-
-I then explained that the method towards Yoga was first written down around 2000 years ago by a person, or group of people, known as Patanjali. Given that information was handed down orally for thousands of years, and, that there is prehistoric evidence going back to at least 7000 BC of figurines depicted in seated ‘yoga poses’, we can deduce that it is a very ancient practice. The Yoga Sutras of Patanjali are one line phrases that were spoken, and then the teacher or Guru would give an exposition on the meaning. I believe that it has survived all this time, because IT WORKS!   For your information, here is Patanjali’s eight fold path towards Yoga. (some facts taken from Wikipedia)  Firstly, and most importunely, are the moral and ethical precepts for living harmoniously with oneself and ones community, the Yamas and Niyamas.
-
-Yama refers to how we relate to the external world.  Ahimsa: non-violence, inflicting no injury or harm to others or even to one’s own self, it goes as far as nonviolence in thought, word and deed.  Satya: truth in word and thought.  Asteya: non-covetousness, to the extent that one should not even desire something that is his own; non-stealing.  Brahmacharya: “Practicing brahmacharya means that we use our sexual energy to regenerate our connection to our spiritual self. It also means that we don’t use this energy in any way that might harm others. Also, responsible behaviour with respect to our goal of moving toward the truth. It suggests that we should form relationships that foster our understanding of the highest truths.” Acetic yogis practice abstinence from sexual activity.  Aparigraha: non-possessiveness; non-hoarding  .
-
-Niyama refers to the five observances: how we relate to ourselves, the inner world.  Shaucha: cleanliness of body and mind.  Santosha: satisfaction; satisfied with what one has. Tapas: austerity and associated observances for body discipline and thereby mental control.  Svādhyāya: study of the Vedic scriptures to know about God and the soul, which leads to introspection on a greater awakening to the soul and God within. Ishvarapranidhana: surrender to (or worship of) God.   Study of these brings clarity of mind.
-
-This is the subject of the Introductory morning on June 21st, 10-1, and, five further days of study in the next year, looking at two principles deeply per day.
-
-Asana, nowadays known as ‘postures’:  Refinement of the body: practices and postures to keep it disease-free and for preserving vital energy. Correct postures are a physical aid to meditation, for they control the limbs and nervous system and prevent them from producing disturbances.
-
-Pranayama: control of life force energies. Beneficial to health, steadies the body and is highly conducive to the concentration of the mind.
-
-Pratyahara: withdrawal of senses from their external objects.
-
-Dharana: e.g. concentration  upon a physical object, such as a flame of a lamp, the midpoint of the eyebrows, or the image of a deity of a sacred word or phrase – a mantra.
-
-Dhyana: steadfast meditation. Undisturbed flow of thought around the object of meditation. The act of meditation and the object of meditation remain distinct and separate.
-
-Samadhi: oneness with the object of meditation. There is no distinction between act of meditation and the object of meditation.
-
-“Without further adieu’ (you had to be there to get that one!), the next phase of the class was about taking the focus inwards, a pratyahara practice.  By focussing on the breath and being fully present to each in and out breath, we begin to still the mind and come into deeper contact with the Self.  We spent the rest of the lesson in what I refer to as ‘the full yogic breath’. Once the mind and body became still we did the most simplest of movements, which involved nothing more than holding one knee and breathing and keeping attention in the breath and sensation. Then the other knee, then both. This is deep reparative work for the back, and we will build on this.
-
-Comments afterwards reflected that time had just gone – for me, it’s actually being outside of time, (which is a perception of mind- when the mind is concentrated, it is not operating habitually).  We finished by reflecting on our experiences, and finished with chanting the sound ‘aaaaaaaa’. (If this is challenging, don’t worry – you don’t have to make a sound if you don’t want to – just be in the resonance of the sound that others are making. It can be powerful). It was a powerful and deep experience for most. Some, on the physical level, some, on the emotional, and,some on the more subtle…”
-
-We’re building on this week by week.
-We’re practicing being in the moment, in the body and in the breath. We’re connecting to our bones. We’re learning slow gentle practices to help with bad backs and to bring energy and vitality into the spine.
-By week three and four we are connecting to the feet, and coming into even deeper connection with our Self and body.
-We’ve looked at some of the Yamas and Niyamas, and will continue to do so.
-Each week brings new areas of exploration, fascination and connection…
