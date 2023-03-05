@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Classes
+toc_max: 8
 ---
 
 
