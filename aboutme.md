@@ -3,7 +3,7 @@ layout: page
 title: About me
 ---
 
-![Jane doing yoga](/assets/img/E26A3574_pp-300x200.jpg)
+![profile pic](/assets/img/profile.jpeg)
 
 Jane has been exploring and working with complementary therapies since 1984.
 
@@ -19,7 +19,7 @@ Between October 2011 and June 2012 Jane spent four months going back and forth t
 
 ![Sanga in Nepal with friends](/assets/img/photo1-e1356036990298-300x225.jpg)
 
-In January 2016 Jane attended the Yoga Development Course http://www.yasodhara.org/study/yoga-development-course/ at Yasodhara Ashram, British Columbia, Canada http://www.yasodhara.org/, and then the Yasodhara Yoga Teacher Certification Course. She will be bringing Yasodhara Yoga to Europe on her return in June 2016, teaching in the UK and the Czech Republic.
+In January 2016 Jane attended the [Yoga Development Course](http://www.yasodhara.org/study/yoga-development-course/) at [Yasodhara Ashram](http://www.yasodhara.org/), British Columbia, Canada, and then the Yasodhara Yoga Teacher Certification Course. She will be bringing Yasodhara Yoga to Europe on her return in June 2016, teaching in the UK and the Czech Republic.
 
 As well as teaching classes, courses and retreats, she also works with private clients on a one to one basis, teaching yoga, pranayama (breathing), meditation, and supports people in healthy eating and lifestyle choices.
 
