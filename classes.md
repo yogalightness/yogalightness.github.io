@@ -50,8 +50,6 @@ The atmosphere of a class is quiet and self-directed. The instructor offers prin
 
 Exploring the First (Base) Cakra, Mulhadhara Saturday 6th July 1.30-4.30pm
 
-https://www.chakra108.de/wp-content/uploads/2014/06/Ch1_Muladhara1-1024x951.png
-
 The first cakra is pure energy. How do you use your energy? What choices lie before you right now?
 
 Kundalini Yoga, approached with the method developed by Swami Radha, is a well-structured practice that leads to the expansion of consciousness and the development of the potential that resides untapped within each of us.
@@ -61,7 +59,7 @@ Join us for this exploration of the First Cakra in the Kundalini System either o
 
 Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £28-45 depending on means for whole day.  Click here for the PayPal payment link or email JaneCatherine for BACs details. We would much rather you paid what you can afford than not attend the classes because of  financial restrictions.
 
-Contact: JaneCatherine here for more information, to reserve an in person place, and for the on line link.### MARCH 2023 Workshops
+Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
 
 #### Bathing in Fountains of Joy, Peace, Harmony and Healing: an afternoon of deep relaxation.
