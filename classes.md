@@ -21,7 +21,7 @@ is a way to get in touch with your Higher Self through the involvement and analy
 
 When: 1.30-4.30
 
-Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £28-45 depending on means for whole day.  Click here for the PayPal payment link[PayPal link](http://paypal.me/yogalightness) or email JaneCatherine for BACs details. We would much rather you paid what you can afford than not attend the classes because of  financial restrictions.
+Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £28-45 depending on means for whole day.  Click here for the [PayPal link](http://paypal.me/yogalightness) or email [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for BACs details. We would much rather you paid what you can afford than not attend the classes because of  financial restrictions.
 
 Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
@@ -49,7 +49,7 @@ By reflecting on the images of the chakras and exploring the symbolism, elements
 
 Join us for this exploration of the First Cakra in the Kundalini System either online or in person in Aylsham Norfolk.
 
-Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £28-45 depending on means for whole day.  We would much rather you paid what you can afford than not attend the classes because of  financial restrictions. Click here for the PayPal payment link[PayPal link](http://paypal.me/yogalightness) or email JaneCatherine here](mailto:jane.a@yasodharayoga.org)for BACs details. 
+Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £28-45 depending on means for whole day.  We would much rather you paid what you can afford than not attend the classes because of  financial restrictions. Click here for the [PayPal link](http://paypal.me/yogalightness) or email JaneCatherine here](mailto:jane.a@yasodharayoga.org)for BACs details. 
 
 Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
