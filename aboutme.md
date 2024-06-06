@@ -3,7 +3,6 @@ layout: page
 title: About me
 ---
 
-![profile pic](/assets/img/profile.jpeg)
 
 JaneCatherine Aldiss started practicing hatha yoga in 1991 and started teaching yoga in 1999. She has studied with internationally recognized teachers around the world.
 
