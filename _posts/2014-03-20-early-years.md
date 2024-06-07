@@ -3,7 +3,7 @@ layout: post
 title: Jane Catherines Formative Years
 thumbnail-img: /assets/img/jane-aldiss.jpg
 tags: [bio]
-published:false
+published: false
 ---
 
 Today I am meant to be meeting a friend for lunch. Her car has broken down, and I’m sitting at home waiting for her to call and let me know if the RAC are towing her home, or, if we can meet up!
