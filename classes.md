@@ -30,6 +30,24 @@ Cost: £15-20 depending on means for the morning only. £20-30 depending on mean
 Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
 
+
+FINDING BALANCE
+
+Saturday 21st September 24 A morning of Hidden Language 10-12  and afternoon of Reflective Practices 2-5.
+On Line and in person in Aylsham Norfolk. You can attend for the day or participate in just one of the workshops.
+ 
+
+Coming into balance at the time of the equinox, through hatha yoga, mantra, meditation, visualisation, reflection and relaxation.
+
+“We have to recognize that the moment of balance exists in order to take the opportunity for rest and renewal.” Swami Sivananda Radha, Yoga: A Path to Awareness
+
+Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £28-45 depending on means for whole day.  We would much rather you paid what you can afford than not attend the classes because of  financial restrictions. Click here for the [PayPal link](http://paypal.me/yogalightness) or email JaneCatherine here](mailto:jane.a@yasodharayoga.org)for BACs details. 
+
+Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
+
+
+
+
 #### Bathing in Fountains of Joy, Peace, Harmony and Healing: an afternoon of deep relaxation.
 
 **Online and In Person**
