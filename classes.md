@@ -46,6 +46,12 @@ Cost: £15-20 depending on means for the morning only. £20-30 depending on mean
 Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
 
+Sunday 6th October
+
+
+A morning of Hidden Language of Hatha Yoga. 10-12 TBC
+
+More details coming soon.
 
 
 #### Bathing in Fountains of Joy, Peace, Harmony and Healing: an afternoon of deep relaxation.
