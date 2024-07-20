@@ -52,3 +52,10 @@ Contact: [JaneCatherine](mailto:jane.a@yasodharayoga.org) for more information, 
 If you are new to Yasodhara Yoga Practices and would like to know more
 about them, to read more [Click here.](https://yasodharayoga.org/yasodhara-yoga/)
 
+Reiki Sessions In Aylsham Norfolk 
+
+Reiki is gentle hands on healing for stress reduction and relaxation that also promotes healing.
+A treatment feels like a wonderful glowing radiance that flows through and around you. Reiki treats the whole person including body, emotions, mind and spirit creating many beneficial effects that include relaxation and feelings of peace, security and wellbeing. Many have reported miraculous results.
+Reiki is a simple, natural and safe method of spiritual healing and self-improvement that everyone can use. It has been effective in helping virtually every known illness and malady and always creates a beneficial effect. It also works in conjunction with all other medical or therapeutic techniques to relieve side effects and promote recovery.
+Contact: [JaneCatherine](mailto:jane.a@yasodharayoga.org)for more information about times and prices for sessions. 
+
