@@ -19,6 +19,24 @@ Cost: £15-20 depending on means for the morning only. £20-30 depending on mean
 
 Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
+Weekly Wednesday Morning Gentle Hatha Yoga Classes
+
+9.30-10.45am
+
+25th September – 14th November  (No class October 30th)
+
+On Line and in person in Aylsham Norfolk.
+
+These classes are gentle, non-competitive, compassionate and open to all levels of experience and ability. You’ll experience gentle classical yoga asanas (postures) and other traditional yogic practices such as mantra, visualisation, relaxation and meditation. Some of the benefits that you may experience are increased alignment and mobiity in your body, and peace and calmness of mind.
+
+You’ll need to bring a mat, cushion/something to sit on, and a blanket.
+
+Cost: £70 for the term, £12 drop in. You can join at any point in the term. Click here for the PayPal link or email JaneCatherine here (mailto:jane.a@yasodharayoga.org) for BACs details.
+
+Concessions available. We would much rather you paid what you can afford than not attend the classes because of financial restrictions.
+
+Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve a place, or for the on line link.
+
 
 Sunday 6th October
 
