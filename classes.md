@@ -15,7 +15,7 @@ Coming into balance at the time of the equinox, through hatha yoga, mantra, medi
 
 “We have to recognize that the moment of balance exists in order to take the opportunity for rest and renewal.” Swami Sivananda Radha, Yoga: A Path to Awareness
 
-Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £35-50 depending on means for whole day.  We would much rather you paid what you can afford than not attend the classes because of  financial restrictions. Click here for the [PayPal link](http://paypal.me/yogalightness) or email JaneCatherine here](mailto:jane.a@yasodharayoga.org)for BACs details. 
+Cost: £15-20 depending on means for the morning only. £20-30 depending on means for the afternoon only. £35-50 depending on means for whole day.  We would much rather you paid what you can afford than not attend the classes because of  financial restrictions. Click here for the [PayPal link](http://paypal.me/yogalightness) or email [JaneCatherine here](mailto:jane.a@yasodharayoga.org)for BACs details. 
 
 Contact: [JaneCatherine here](mailto:jane.a@yasodharayoga.org) for more information, to reserve an in person place, and for the on line link.
 
